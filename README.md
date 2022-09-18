@@ -1,1 +1,1 @@
-# frend
+# AMER FREND AR COMAND AJ POST KORLAM😂😂
